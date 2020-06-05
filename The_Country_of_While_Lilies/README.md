@@ -1,0 +1,7 @@
+## The Country Of While Lilies - Grigory Petrov
+
+Petrov tells about the foundation of Finland and how it has transformed from a country of unworkable and crushed to magnificent and well-being a country. Also, I'd like to mention about this book like that, this book is, Ataturk wants to put in the curriculum of schools. This book consists of the observations of Grigory Petrov, who constantly goes to Finland. From his eyes, we see the transformation and development of Finland from a swamp to a completely different country. we can say resurrection and resurrection. Today we know how good the education system of Finland is.
+
+It is a beautiful book that shows what people can accomplish when directed right. It has a plain language, it ends right away. It is one of the cult works that explain how Finland has developed and has reached the level of exemplary civilizations today. As a result of the fact that the positive contribution of the importance given to culture and education to development has been compulsorily taught to all our politicians, we cannot reach the shores of that level, but it is the work that has been the answer to why we have not been developing for years.
+	
+There are dozens of things to write about, in fact, for this book. Just read. Leaving its teaching and educating aside, it's the book one of the bests I have read so far, which best describes the past and the future, connects and feels close with the little stories in its content.
