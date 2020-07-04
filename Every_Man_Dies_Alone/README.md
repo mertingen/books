@@ -6,4 +6,4 @@ This book argues that anyone who is oppressed by bullying schemes must do everyt
 
 The story tells Otto Quangel commutes to his job at the factory, and Anna Quangel continues her work in the women's arm of the Nazi Party. One day, a spark sparks in their brains when their sons on the front receive news of death. They realize that, even if only two, they must challenge this brutal fascism. So they find themselves in the middle of a chase that includes Gestapo officers, pro-Hitler neighbors, family friends, and many more Berliners.
 
-I wouldn't rather tell the whole story but I drastically recommend reading this book in your life. You won't be regret it.
+I wouldn't rather tell the whole story but I drastically recommend reading this book in your life. You won't regret it.
