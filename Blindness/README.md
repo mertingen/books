@@ -1,7 +1,7 @@
 ## Blindness - Jose Saramago
 
-Blindness, Portuguese writer Jose Saramago's 'Nobel prize for literature in 1998' is the most impressive book he has ever written. car a man who was driving suddenly the green change
-becomes blind. his blindness is also transmitted to the doctor he applied to. this blindness one
+Blindness, Portuguese writer Jose Saramago's 'Nobel prize for literature in 1998' is the most impressive book he has ever written. A man who was driving car and suddenly the green change
+becomes blind. His blindness is also transmitted to the doctor he applied to. This blindness one
 It spreads to the whole city like an epidemic; Although not lethal all learning morals manages to destroy. A society with eyes that cannot see witnesses murders and rapes.
 
 The things described in the novel will never come far to the readers. That is, this epidemic called blindness already exists. Modern man is already blind to anyone but himself. Just like in the novel, this blindness instills the understanding of "everything is permissible".The only truth is you.
