@@ -1,0 +1,9 @@
+## White Fang - Jack London
+
+The must-read book of Jack London for anyone wondering what life and people look like through the eyes of an animal. The vast majority of the book is told through the eyes of the wolf, the white tooth. Here again we realize how great a writer Jack London is. an animal doesn't think much more. You better understand the underlying causes of many animals' behavior after reading this book. first thought fantastic book; I thought that human characteristics have been transferred to the animal. But as I read it, I understood: "Neither less nor more, a dog behaves exactly like that" I said. Like Martin Eden and the Iron Heel, this book is a masterpiece for me.
+
+White Fang is the story which tries to understand the human gods and tries to adapt to different conditions, which constantly finds itself in a different situation with the struggle to survive, considering the laws of wild nature. The life of the White Fang, who is brutal, loveless and always ruthlessly trained by beatings, reaches a very different dimension when he meets Weedon Scot, because his new god teaches him love and the White Fang remains faithful to him throughout his life and shows his love to him at every opportunity.
+The contrast between people and the influence of nature on the behavior of White Fang is striking.
+I recommend you to read.
+
+When I read this book, I had the opportunity to observe whether our conscience is intact. Even though we are so bad, we can learn so much from them. The fact that we created a curse lexicon called animals made us forget how precious creatures they are, and that they make us human. Talk about education as much as you want in a non-animal love society. We don't know the word human yet. How are we going to study at the university where people study. But if the most painful thing was such a utopia, we would do it to show off.
