@@ -1,0 +1,7 @@
+## The Old Man and The Sea - Ernest Hemingway
+
+I guess its beauty comes from its simplicity. It tells of the 4 days an old fisherman sailing out to sea in pursuit of a swordfish. It is immersive, it ends quickly because it is written in fluent language. I liked the book. Because he explained the patience, will, belief and power created by the extraordinary emotion called passion. Actually, it is not only about the fisherman fishing there. He explained the materials as a method by approaching completely philosophical.
+
+This book is just a pattern, and also a field that concerns many moments of his life. You will take and place your life in it. never to give up, that there is always hope even in the most desperate moments, that you have to fight ceaselessly for what you believe and want to accomplish, war, not to be destroyed, and the indescribable pleasure of being able to smile when you are taken away from what you have achieved and will make you live.
+
+Santiago is an old and lonely man. Despite his physical weakness, he has to continue his life by fishing. Fisherman Santiago returns empty-handed from the sea for eighty-four days. Catching the big fish has now become an obsession for him...
