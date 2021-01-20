@@ -1,0 +1,9 @@
+## The Gambler - Fyodor Dostoevsky
+
+Novel by Dostoyevsky, first published in 1867. It's in which he perfectly describes the rottenness and corruption of the bourgeois order. The story is about a twenty-five year old young man's relationship with gambling and love. The author actually explained that the Russians were different from western societies through gambling and love.
+
+Gambling is an indispensable passion. This passion takes people from all walks of life into their palms. The more you try to get rid of it, the closer you get with it and you cannot escape from being its captive. It is the easy way to earn money without effort: what brings you closer to it and creates a deep tuk between you.
+Dostoyeyski's best novels, written in less than a month, offering sections from his own life. The reason why he wrote it less than a month ago: if his publisher puts pressure on him and does not write a new novel before a month, Dostoevsky will not be able to get a share from any work he has written and will write so far. It is one of the novels he wrote for his gambling debt. Dostoevsky is the greatest known gambler; The greatest known gambler has written many novels for his gambling debts. If Dostoevsky had not been a gambler, we would not have read many of his works. The gambler is an immersive and lesson-worthy novel that puts people in pitiful situations in which their passion for gambling is perfectly narrated. Dostoyevsky has presented sections of himself in this novel, thanks to these sections you will get to know Dostoyevsky better.
+
+
+Dostoyevsky novels are generally novels famous for their psychological depth. this novel proves this too much. For all the characters in the novel, you can stop and think why. If you are interested in human psychology, it is definitely one of the books you should read. Funny book that is enjoyable, makes you laugh in some parts, and expresses the passion effectively.
