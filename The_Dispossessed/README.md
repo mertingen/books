@@ -1,0 +1,12 @@
+## The Dispossessed - Ursula K. Le Guin
+
+The story has two main planets, "anarres" and "urras". It tells of the anarchist world, the "culture shock" of a physicist with anarres coming to the capitalist urras, and the "culture shock" of being caught between the life there and his own life which is completely different, and then his return. Meanwhile, the author is constantly moving back and forth between the two planets, using flash backs to best explain the reason for this shock to the reader.
+
+
+"Annares" is a truly anarchist planet. There is no possession, everything is common, the person works for the good and "freedom" of the society and thus makes himself "free" in his own way. The planet is completely constructed from scratch in terms of its structuring, and the society that lives on it has a pure anarchist consciousness anticipated by idealists. however, Leguin shows the reader that even the most ideal fiction envisioned is still problematic by human nature and even explores the world we live in in some ways. In doing so, he reveals the essential dilemma of anarchism: the system created by unsystematicness; and the inability to perceive the system actually existing due to the intensity of unsystematic awareness / belief in individuals in the society; and as a result, the individual's being a slave of systemlessness in line with his belief and thought of freedom.
+
+"Urras", on the other hand, is a world where the reader can easily identify with the future of the world in which he lives, where competition hurts, where personal interests come first and where economic imbalance creates gaps. However, it is a place that is at a very advanced level in terms of technology and product diversity within the framework of productivity brought by competition. In urras, which is completely different from anarrest, there is an understanding of possession and, most importantly, "luxury"; There is an effort to act in line with tastes and get what you want. however, in Anarres, the concept of pleasure is almost destroyed in order to protect social interests.
+
+Ursula says "enough" for anarcho-socialists who ignore the beauty of the world he lives in as a result of too much involvement with idealistic approaches. However, on the other hand, he does not get too caught up in his own discourse and exhibits a balanced critical approach and makes the reader openly question what real freedom is.
+
+As a result, it approaches the fiction of the propertyless with a very successful perspective. 
