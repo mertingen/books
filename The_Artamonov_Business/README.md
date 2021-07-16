@@ -1,0 +1,8 @@
+## The Artamonov Business - Maxim Gorky
+
+Artamonovs are one of the successful works of Maxim Gorki. In the book, after the abolition of land slavery in the pre-Soviet period, the transformation and delirium experienced, the lives of people who experienced transformation were discussed.
+In this novel, like every work of Russian literature, you live the spirit of the period very well. The book contains definitions, information and proverbs specific to the Russian language, which gives pleasure to the interested. First, they settle in a region. There they organize the working class and set up a factory. They use the workers as a machine and generate income from them. The working class can no longer stand this situation. They rebel against their bosses. Thus ends the reign of the Artamonovs. The Artamonovs' disregard for innovations, the immoral life of the family gentlemen, and their inability to be as ambitious as their fathers are effective in ending this structure.
+
+The novel depicts the rapid rise and disintegration of a family during a period of intense class conflict, the fact that the remaining members of the family are condemned to extreme poverty and starvation after the revolution and lose their dignity; therefore, he depicts the end of an era, that is, the disappearance of antiquity in Russia, with a strong observational skill.
+
+The revolution splits the Artamonov family like a knife. After the revolution, the lives of family members become more difficult with each passing day, and life turns into a tragedy for them. The novel takes you on a tour of the Russia of the time. It is impossible not to admire Gorky's mastery of creating impressive, living characters that come to life in the mind of the reader in all their details.
