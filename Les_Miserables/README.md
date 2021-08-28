@@ -1,6 +1,6 @@
 ## Les Miserables - Victor Hugo
 
-For me, Victor Hugo's 'Les Misérables' is one of the best books ever! Even though I read the book a few months ago, I'm still under its influence, and I don't think I'll ever forget it.
+For me, Victor Hugo's 'Les Misérables' is one of the best books ever! Even though I read the book a few days ago, I'm still under its influence, and I don't think I'll ever forget it.
 "Stealing bread in order not to die of hunger and being punished for stealing bread." What an embarrassing sentence, right? Some people are starving and we are still ignoring them. (We are committing crimes against humanity.) Now we are at the end of humanity, justice and conscience!
 Jean Valjean is one of the best examples of how, according to our so-called Justice, prisoners who are excluded from society, despised, pushed around and "People" who have committed social crimes can be a much better person than a normal citizen..!
 Sometimes we can touch a person's heart with a small gesture. And that touch of the heart can connect that person to life or alienate him from life forever... so we must always be mindful of our actions, at least be aware that we are trying to do something good. Just as the Bishop changed Jean Valjean's life!
