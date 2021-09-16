@@ -1,0 +1,7 @@
+## The Castle - Franz Kafka
+
+A book full of dilemmas, independent bureaucrats who are never aware of each other, an authority that lacks transparency, people who worship high positions, class divisions and more... This book, which is very relevant to our day, allows you to read actively by leaving you in dilemmas while reading. Our main hero is appointed to a place as a surveyor, but learns that he has not been appointed due to a misunderstanding, and he tries to investigate this event and learn the truth.
+
+In the book, we read about the complexity of the state, bureaucracy, how and why people with status are inaccessible. Our main character, K., whose background or identity is unknown, is sent to a village as a land surveyor and has difficulty finding a place to stay there. He finds a place for good or bad, but at midnight the villagers wake up K. and say that it is not possible for him to stay in the village without the permission of the Castle. But K. tries to explain that he came here as a land surveyor with a letter he received, but he cannot express himself in any way. Anyway, the villagers don't want to understand this either. Why was K. sent to this village? Will the Barnabas family be able to help K.? Frieda, who came across K. on this journey, added a completely different atmosphere to this story. She was quite impressive in terms of psychological analyzes of male-female relationships. I loved the mysterious atmosphere and progression in this book.
+
+“You misinterpret everything, even the silence.”
