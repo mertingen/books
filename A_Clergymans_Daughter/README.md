@@ -1,0 +1,10 @@
+## A Clergyman's Daughter - George Orwell
+
+For George Orwell it is often said that he sheds light on the present. Actually, George Orwell doesn't do that. All George Orwell did was get to know the man. As you will see when you read the book, the human being is the same in August of 2021 as it was in 1930. This is unmistakable. Man is only human and the only thing that changes is the things he uses.
+
+The book is about Dorothy, a girl of faith, who lost her memory and started a different life and what happened to her.
+The author also makes important observations and opinions about the view of the people of the clergy in England in the 1930s, the view of the clergy towards the world, the difficulty of the living conditions of the people living on the street, the education system that is still discussed today, and the activities of private schools.
+When Dorothy was a very religious person, she lost the concept of belief after the events that happened to her, but still decided that people should believe in something rather than what they believe, or that she decided not to share anything about her faith with anyone in order not to plant seeds of doubt in the minds of believers, perhaps Orwell reflected his own thoughts on the protagonist. reveals the truth.
+A novel that questions faith and disbelief, morality and addiction, money and poverty, with Orwell's flowing pen.
+
+The story of Dorothy Hare, the daughter of a provincial parish priest at the time of World War II. It is also quite impressive. At first, her father assigns all duties to Dorothy. That is, he will take care of debts, the church, the congregation, and his own affairs. Of course, one day, whatever happened suddenly, he will find himself in the middle, miserable. This change of life in society is actually intended to describe the Great Depression period, if I remember correctly. We take a look at the situation of the unemployed and homeless, especially the situation of British women. We examine opposite concepts. We examine the opposite of these with the concepts of faith, morality and wealth. In this respect, a remarkable work emerges. 
