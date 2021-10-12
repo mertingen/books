@@ -1,0 +1,12 @@
+## Not in Our Genes - Leon Kamin, Richard Lewontin, and Steven Rose
+
+Biology, in other words heredity, is always used to express inevitability: Nature has given everything biological and science has proven it. Biology is immutable, so it cannot be discussed. British Social Services Minister Patrick Jenkin, in a 1980 television interview, talking about working mothers exemplifies this understanding:
+"Frankly, I don't think mothers have the same right to work as fathers. If God wanted us to have equal rights to work, he wouldn't have created men and women. These are biological facts; a child needs a mother."
+The use of God and science for double legitimation is a peculiar but familiar feature of New Right ideology. The New Right likes to directly use powerful sources of authority regarding human nature.
+
+Bourgeois ideologies cannot always provide an open and direct defense of capitalism. Some liberal schools, which are a little more "cunning", accept the reflection of capitalist commodity production on superstructure relations - various inequalities and contradictions developing, especially classes, genders and nations - and produce a biological determinist interpretation of all the inequalities in question.
+
+In the years after the French Revolution, with the effect of Right determinism, which emerged with the effect of increasing nationalism, people attributed their non-existent virtues to some innate things and attributed "Supremacy" to them. Unfortunately, this time things have changed and instead of referring to clergy as in ancient times, they took fake scientists and fake theses as reference. Here the blame is not in science, here the blame lies in the stupid people. The primary purpose of IQ testing is discrimination. They have reduced certain intellectual activities to races by labeling people with fake stupid things. When two children with an IQ of 86 in the family are born, when they are given to another environment, to the family, the IQ results of the children are 117. In other words, genes cannot limit us, genes are not selfish, thieves, or stupid. These are things that belong only to the human organism. 
+
+If I need to summary this with one sentence, it'd be the following.
+"everything is political. Even religion and science."
