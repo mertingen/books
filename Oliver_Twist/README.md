@@ -1,4 +1,4 @@
-## In Dubious Battle - John Steinbeck
+## Oliver Twist - Charles Dickens
 
 Not every child is born in a good family, and when they are born in a bad family, their chances of living a good life are very low. The book explains this very well, but on the other hand, it shows very clearly that meeting good people can also lead a life that started badly towards good. Oliver Twist is a novel that looks like a child's adventures, how a poor life sees through the eyes of a child, but is a great critique of British society of its time. Oliver is a child born in a poor house, without a mother and father, even his name is randomly given. The novel, which started in a small area, reaches London as things get complicated and Oliver grows up. Dickens shows us all the dark sides in this city, where the effects of the Industrial Revolution were so fresh. As we show the corruption of society, we also witness that the little boy Oliver persistently does not give up on virtue, no matter what.
 
