@@ -1,4 +1,4 @@
-## Germinal - Emilie Zola
+## Germinal - Emile Zola
 
 I have to say that it is a real classic both with its narration and its narratives. Emile Zola has fit into this book what you cannot tell in volumes of books. It is an incredibly rich book not only in terms of literature but also in terms of knowledge and culture. In my opinion, it is a really important work that everyone should read and everyone who reads will learn a lot about life. The novel begins with a man captured by the cold, hunger, and despair close to giving up.
 It ends with spring, hope and great personal changes by telling day by day the change of people around the man with the man. Personal changes obviously happen depending on the events. At the end of these events, some lose their personality, humanity, and essence, and some bring out these values they are not aware of. For the novel, it would not be wrong to say that it describes change in general, but to go more specifically, his skill in expressing enlightenment, hunger, unity or betrayal and indifference is the great success of this novel.
