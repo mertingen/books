@@ -1,4 +1,4 @@
-## The True Believer - Eric Hoffer
+## The True Believers - Eric Hoffer
 
 It is a lively work whose content will never become obsolete. I want to state that I enjoyed reading it very much. The author tried to explain the mass, which he called strict believers, through historical events, revolutions, and certain human communities. From the birth of Christianity to the spread of Islam, from the Nazi genocide to the October revolution of the Bolsheviks, from the Far East movements to the declaration of human rights in the USA; He touched on a number of historical events that you can think of. And in connection with this, from Hitler to Stalin, from Ghandi to Lenin, from Atatürk to Lincoln, the leaders who led the mass movements.
 
