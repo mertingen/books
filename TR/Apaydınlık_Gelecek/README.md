@@ -1,4 +1,4 @@
-## Apaydınlık Gelecel - Stewart Gordon
+## Apaydınlık Gelecek - Stewart Gordon
 
 Paul Mason'un "Apaçık Gelecek" adlı kitabı, günümüzde teknolojinin ve yapay zekanın insan hayatına olan etkilerini tartışan bir eser. Mason, kitapta teknolojinin insan yaşamını nasıl etkilediğini sorgularken, gelecekteki potansiyel tehditleri ve fırsatları ele alır. Özellikle yapay zeka ve teknolojinin insanın kontrolünü ele geçirebilecek potansiyelini vurguluyor. Mason'un kitabı, teknolojinin insanları nasıl etkilediği konusunda çeşitli örneklerle desteklenmiş bir eleştiri sunar. Özellikle büyük teknoloji şirketlerinin, kullanıcıları gözetleyerek ve verilerini manipule ederek nasıl bir güç elde ettiğini inceliyor. Bu durum, Mason'a göre "şimdiki kabus" olarak adlandırılabilir. Ancak, Mason geleceğe odaklanarak yapay zeka ve teknolojinin getireceği tehlikeleri tartışıyor. Yapay zekanın insan zekasını aşması ve insanın kontrolünü ele geçirebilme potansiyelini vurguluyor. Ancak, bu konuda gerçek tehlikenin nerede yattığını belirlemekte eksik kaldığına işaret ediliyor.
 
