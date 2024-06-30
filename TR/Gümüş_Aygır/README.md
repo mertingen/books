@@ -1,4 +1,4 @@
-## Gümüş Aygırı - Ahn Junghyo
+## Gümüş Aygır - Ahn Junghyo
 
 Hikaye, 1950 yazında Kore Savaşı'nın patlak vermesiyle başlıyor. Geumsan adlı küçük bir Kore köyündeki çocukların gözünden anlatılan olaylar, savaşın yıkıcı etkilerini ve insanların bu zor koşullar altında hayatta kalma mücadelelerini çarpıcı bir şekilde ortaya koyuyor. Kitapta, köydeki çocuklar arasında dolaşan "Bebek Kumandan" efsanesi dikkat çekiyor. Bebek Kumandan'ın bir gün gümüş bir aygırın sırtında gelip halkı özgürlüğe kavuşturacağına inanılıyor. Ancak, bu efsane yerini Amerikan generali Douglas MacArthur ve Birleşmiş Milletler Ordusu'nun gelişine bırakıyor. Bu noktadan itibaren, köydeki yaşam sonsuza dek değişiyor.
 
