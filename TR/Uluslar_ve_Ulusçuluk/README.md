@@ -1,4 +1,4 @@
-## Uluslar ve Ulusçuluk - Stefan Heym
+## Uluslar ve Ulusçuluk - Ernest Gellner
 
 Milliyetçiliğin modern toplumların oluşumunda nasıl merkezi bir rol oynadığını iyi anlatıyor. Gellner, milliyetçiliğin sanayi devrimiyle doğan bir zorunluluk olduğunu ileri sürüyor. Kitap, milliyetçiliğin yalnızca bir siyasi ideoloji değil, aynı zamanda sanayi toplumlarının karmaşıklıklarına yanıt olarak ortaya çıkan bir sosyal yapı olduğunu detaylı bir şekilde açıklıyor. Gellner’in görüşüne göre, sanayi devrimi toplumsal yapıları dönüştürürken, bu yeni düzeni sürdürebilmek için ortak bir kültür ve dil ihtiyacı doğmuştur. Bu ihtiyacı karşılamak amacıyla milliyetçilik, toplumsal düzenin ve istikrarın sağlanmasında kritik bir işlev üstlenir.
 
