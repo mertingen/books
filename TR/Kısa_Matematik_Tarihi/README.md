@@ -1,4 +1,4 @@
-## Diyaloglar - Platon
+## Kısa Matematik Tarihi - Dirk Struik
 
 Matematiğin tarihsel gelişimini geniş bir perspektifle ele alan bir başyapıt. Struik, yalnızca matematiksel kavramları açıklamakla kalmıyor, aynı zamanda bu kavramların sosyo-ekonomik ve kültürel bağlamlarını da inceliyor. Tarihçi olarak da tanınır. Matematiği sadece soyut bir disiplin olarak değil, toplumsal gelişimlerle iç içe bir alan olarak görmesi, onu diğer matematik tarihçilerinden ayırır. Kısa Matematik Tarihi de bu yaklaşımın bir ürünü.
 
