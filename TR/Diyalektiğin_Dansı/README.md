@@ -1,4 +1,4 @@
-## Ahlak - Hanno Sauer
+## Diyalektiğin Dansı - Bertell Ollman
 
 Diyalektiği soyut ve kuru bir mantık sistemi olmaktan çıkararak, onu toplumsal ilişkilerin, tarihsel süreçlerin ve düşünsel dönüşümün merkezinde yer alan, dinamik ve bütünsel bir kavrayış biçimi olarak yeniden tanımlıyor. Ona göre diyalektik, yalnızca akademik bir yöntem değil, dünyayı anlamanın, değiştirmenin ve dönüştürmenin vazgeçilmez bir yolu, yaşayan bir düşünce pratiği. Ayrıca Marx'ın düşüncesini anlamanın önündeki en büyük engellerden birinin, onun diyalektik yöntemini kavrayamamak olduğunu düşünen Ollman, bu kitabı tam da bu açığı kapatmak için kaleme almış. Ona göre, Marx'ın fikirleri sadece ne söylediğiyle değil, nasıl düşündüğüyle birlikte anlaşılabilir. Diyalektik, bu "nasıl"ı temsil eder. Ollman, okuru akademik jargona boğmadan, mizah, gündelik örnekler ve net kavram tanımlarıyla adım adım bu yöntemin içine çekiyor. Diyalektiği; ilişkisel düşünce, süreçsel yaklaşım, içselleştirme ve çelişki gibi dört temel kavram üzerinden işler. Bu kavramların her biri, dünyayı sabit, durağan ve birbirinden kopuk parçalar halinde algılamaya alışmış modern zihne karşı birer panzehirdir.
 
