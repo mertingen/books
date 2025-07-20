@@ -1,4 +1,4 @@
-## Gençlerle Baş Başa Mitoloji - İsmail Gezgin
+## Nedenselliğin Kültürel Tarihi - Stephen Kern
 
 Batı düşüncesinde nedensellik fikrinin tarihsel dönüşümünü incelerken yalnızca felsefeye, bilime ya da tekil bir disipline odaklanmıyor; sanat, edebiyat, psikoloji, teknoloji ve günlük yaşam pratiklerini de sürece dahil ederek kültürel bir panorama çiziyor. Kern, nedenselliği bir soyut kavram olarak ele almanın ötesine geçerek onu tarihsel olarak yaşayan, biçim değiştiren, dönemin zihniyetine göre şekillenen bir düşünce modeli olarak görür ve gösteriyor bizlere. Örneğin, 19. yüzyılın sonundan 20. yüzyıl başına uzanan dönemde nedensellik anlayışının nasıl parçalandığını, belirli ve mutlak bir sebep-sonuç zincirinden, olasılıkların, ihtimallerin ve çoklu nedenlerin öne çıktığı daha belirsiz bir dünyaya geçildiğini anlatıyor. Bu geçişi sadece bilimsel teoriler üzerinden değil, Virginia Woolf'un bilinç akışı tekniğiyle yazdığı romanlarından Freud'un insan zihnine dair karmaşık modeline, Einstein'ın görelilik kuramından Bergson'un zaman anlayışına kadar geniş bir alanda örnekler vererek göstermekte.
 
