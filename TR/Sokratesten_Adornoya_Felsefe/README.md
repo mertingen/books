@@ -1,4 +1,4 @@
-## Sokrates'ten Adorno'ya Felsefe - Ahn Junghyo
+## Sokrates'ten Adorno'ya Felsefe - Raymond Geuss
 
 Geuss, kronolojik sırayı takip etse de asıl amacı filozofların fikirlerini ansiklopedik biçimde tanıtmak değil, onların felsefe yapma biçimlerinden ne öğrenebileceğimizi, felsefenin hangi işlevleri üstlenebileceğini tartışmak. Bu nedenle kitap, akademik disipline mesafeli duran, felsefeyi bir düşünme ve sorgulama pratiği olarak görmek isteyen okurlara hitap ediyor. Başlangıç noktası Sokrates. Geuss'a göre felsefenin özü, Sokrates'in yaptığı gibi yerleşik kanaatleri rahatsız edici sorularla sorgulamak, kendini bilmeye ve hakikati aramaya çalışmak. Bu yüzden felsefenin, yalnızca teknik bir bilgi alanı değil, doğrudan politik ve etik bir etkinlik olduğunu vurguluyor. Sokrates'in mahkemede sergilediği tavrı, felsefenin rahatlatıcı değil, rahatsız edici bir yönü olduğunu göstermesi bakımından temel kabul ediyor.
 
