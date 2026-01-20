@@ -1,6 +1,6 @@
 ## Suyu Arayan Adam - Şevket Süreyya Aydemir
 
-Aslında bir otobiyografi ama diğer yandan 20. yüzyıl başındaki Türk aydınının çalkantılı kimlik ve ideal arayışının en çarpıcı tanıklıklarından biri yani tarih kitabı bile diyebiliriz. 1908–1930 arası Türk aydınının zihinsel savruluşunun neredeyse laboratuvar günlüğü gibi. Kitabın gücü, ideolojileri "tez" gibi anlatmasında değil, onları yaşanmış yanılgılar olarak vermesinde yatar.
+Aslında bir otobiyografi ama diğer yandan 20. yüzyıl başındaki Türk aydınının çalkantılı kimlik ve ideal arayışının en çarpıcı tanıklıklarından biri yani tarih kitabı bile diyebiliriz. 1908–1930 arası Türk aydınının zihinsel savruluşunun neredeyse laboratuvar günlüğü gibi. Kitabın gücü, ideolojileri "tez" gibi anlatmasında değil, onları yaşanmış yanılgılar olarak vermesinde.
 
 Edirne yılları bunun ilk örneğidir. Balkan Savaşları'nın yarattığı bozgun atmosferinde çocukluk, imparatorluğun çözülüşünü soyut bir fikir olarak değil, sokakta, göçte, yoksullukta deneyimler. Burada henüz bir ideoloji yoktur ama "kaybedilmiş bir bütün" duygusu doğar. Bu duygu, ileride Turancılığın neden bu kadar cazip geldiğini de açıklar.
 
@@ -13,3 +13,4 @@ Türkiye'ye dönüş, hapishaneler ve yargılamalar kitabın en ağır ama en ö
 Cumhuriyet ve Ankara bölümleri, kitabın tonunun değiştiği yerdir. Artık büyük ütopyalar değil, somut devlet inşası vardır. Kadro hareketi, planlama fikri, devletçilik arayışı bu zeminde ortaya çıkar. Şevket Süreyya'nın vardığı yer ne dar bir milliyetçilik ne de eski ideolojilerin makyajıdır. Onun "suyu", köksüz hayallerde değil; tarihsel gerçekliği olan, bu toprakların ritmini bilen bir cumhuriyetçilikte bulunur.
 
 "Suyu arayan adam" metaforu burada anlamını bulur, Çölde koşan biri değildir artık; nerede kuyu kazılması gerektiğini öğrenmiş biridir. Kitap bu yüzden bir "aydın olgunlaşması" metnidir. Yanılgılar, savruluşlar ve hayal kırıklıkları olmadan bu olgunluğa ulaşılamayacağını gösterir.
+
