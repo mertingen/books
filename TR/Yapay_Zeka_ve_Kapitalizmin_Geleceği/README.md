@@ -1,4 +1,4 @@
-## Özgürlük ve Mülkiyet - Ellen Meiksins Wood
+## Yapay Zeka ve Kapitalizmin Geleceği - Nick Dyer-Witheford, Atle Mikkola Kjosen ve James Steinhoff
 
 Yazarlar, günümüz kapitalizminin yapay zeka (YZ) ile iç içe geçmiş halini Marksist bir perspektiften ele alıyor. Kitap, klasik Marksist kavramları (artı-değer, emek gücü, genel üretim koşulları, artı nüfus gibi) modern YZ teknolojileriyle yeniden yorumluyor ve Marx'ın dönemindeki makinelerden farklı olarak, bugün ki YZ'nin "insandışı bir güç" haline geldiğini savunuyor. Kitabın temel tezi, YZ'nin kapitalizmin kendi iç dinamikleriyle ortaya çıktığı ve bu sistemin sınırlarını zorladığı yönünde. Yazarlar, YZ'nin kendi başına hareket edebilen, konuşabilen, "düşünebilen" sistemler olarak geliştiğini vurguluyor. Bu gelişme, kapitalizmin emek sömürüsünü yeni biçimlere taşıyor. Örneğin, makine öğrenmesi için gereken devasa veri setlerini etiketleme, temizleme ve yapılandırma işleri, küresel güneydeki düşük ücretli "mikro iş" platformları üzerinden dağılıyor. Bu görünmez emek, YZ'nin "zekasını" besliyor ama işçiler bundan neredeyse hiçbir artı-değer paylaşımı alamıyor.
 
